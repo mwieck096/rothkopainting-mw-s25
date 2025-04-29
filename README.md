@@ -1,0 +1,1 @@
+# rothkopainting-mw-s25
